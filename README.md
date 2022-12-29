@@ -11,4 +11,4 @@ With addition of Nega word it was then getting used for brown people and now Gig
 ALERT: Do not confuse it as a different GigaChad and start to compare, both of them are same but the calling term i.e GigaNegaChad and GigaChad is different
 
 # TestYourself
-[AreYourGigaNegaChad](https://forms.gle/aMNv24kG4xuJAHs96)
+[AreYourGigaNegaChad?](https://forms.gle/aMNv24kG4xuJAHs96)

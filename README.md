@@ -7,4 +7,5 @@ The term Nega as in GigaNegaChad was originally started from the group named "Ma
 # History
 It was derived from the original meme GigaChad that used to impersonate as someone who reached at the peak of perfection
 a man with millions of followers
-With addition of Nega word it was then getting used for brown people, do not cofuse it as a different Chad, both of themm are same but calling term is different
+With addition of Nega word it was then getting used for brown people and now GigaNegaChad shows the Brown supermacy
+ALERT: Do not confuse it as a different GigaChad and start to compare, both of them are same but the calling term i.e GigaNegaChad and GigaChad is different
